@@ -35,7 +35,7 @@
 
 <img width="20" height="20" alt="9925aj" src="https://github.com/user-attachments/assets/9f66c532-f28b-4052-b6b3-6657e8941cf9" /> I am usually with friends 
 
-![tumblr_282808ade6edb7e3829ff6375f03ae45_a2ba0834_75](https://github.com/user-attachments/assets/0bb34bd6-e080-48ad-bf7b-86d1a440f491) Common Sense DNI.  
+![tumblr_282808ade6edb7e3829ff6375f03ae45_a2ba0834_75](https://github.com/user-attachments/assets/0bb34bd6-e080-48ad-bf7b-86d1a440f491) BASIC DNI CRITERA.  
 
 
 
